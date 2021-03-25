@@ -4,7 +4,7 @@
 
 Submitted by: **Ria Anand**
 
-Time spent: **3.5** hours spent in total
+Time spent: **4** hours spent in total
 
 Link to project: https://glitch.com/edit/#!/chestnut-tremendous-cardamom
 
